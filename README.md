@@ -1,3 +1,4 @@
 # Simple_c-
 
-soon to be uploadef
+soon to be uploaded
+expected about 5 days from now
